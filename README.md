@@ -1,1 +1,1 @@
-# JunSeo.github.io
+# sjin4861.github.io
